@@ -7,3 +7,5 @@
 
 ---
 # The start of a beautiful story
+
+4/mar/2021 - I got diagnosed negative for Covid-19 ^-^
