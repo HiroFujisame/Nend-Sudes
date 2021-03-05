@@ -9,3 +9,7 @@
 # The start of a beautiful story
 
 4/mar/2021 - I got diagnosed negative for Covid-19 ^-^
+
+5/mar/2021 - The government made the lockdown even more rigorous in this last phase
+  of the virus, also my grandma got vaccinated yesterday, finally she can stop
+  worrying about it :slightly_smiling_face:
