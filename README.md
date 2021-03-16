@@ -14,4 +14,6 @@
   of the virus, also my grandma got vaccinated yesterday, finally she can stop
   worrying about it :slightly_smiling_face:
 
-15/mar/2021 -
+15/mar/2021 - Today I made my first [pull request](https://github.com/pevers/images-scraper/pull/64) in a raising popular repository about image scraping from google :D
+
+16/mar/2021 - I f...ing HATE desinging web scrapers, I need to make it run on termux/android but idk how ;-;
