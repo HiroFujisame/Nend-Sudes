@@ -32,3 +32,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 18/mar/2021 - My mom presented me a guy she is liking (dating? idk), he seems fine and said he wants to be my friend, so I'm ok with it :)
+
+---
+
+19/mar/2021 - A friend I haven't talked to in a while came talk to me today :D we chatted until 3am and i almost lost my class the next morning lol
