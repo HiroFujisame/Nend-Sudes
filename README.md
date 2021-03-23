@@ -36,3 +36,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 19/mar/2021 - A friend I haven't talked to in a while came talk to me today :D we chatted until 3am and i almost lost my class the next morning lol
+
+---
+
+22/mar/2021 - Today my friend went to the hospital because he tried to cut open a bag of cheese on sticks and got four stitches hahahah, I'll never forget this day. XD
