@@ -43,4 +43,4 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 
 ---
 
-24/mar/2021 - Three of my female friends wanted to hang out with me this week.. I feel so requested :3 I'm not breaking the quarantine yet tho!!
+24/mar/2021 - Three of my female friends wanted to hang out with me this week.. I feel so requested :3 I'm not breaking the quarantine yet tho!
