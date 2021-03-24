@@ -40,3 +40,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 22/mar/2021 - Today my friend went to the hospital because he tried to cut open a bag of cheese on sticks and got four stitches hahahah, I'll never forget this day. XD
+
+---
+
+24/mar/2021 - Three of my female friends wanted to hang out with me this week.. I feel so requested :3 I'm not breaking the quarantine yet tho!
