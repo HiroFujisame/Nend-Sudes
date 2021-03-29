@@ -48,3 +48,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 26/mar/2021 - I finally finished the discord bot i was paid to make yesterday. It became so useful for general friends' discord servers that I think i'll be making another bot anytime soon.
+
+---
+
+29/mar/2021 - I started learning lua because my friend would reach me to make a roblox game, it's a interesting language, although even the creator says there are better languages hahah.
