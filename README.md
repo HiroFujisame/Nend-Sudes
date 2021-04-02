@@ -4,11 +4,11 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 
 # The start of a beautiful story
 
-4/mar/2021 - I got diagnosed negative for Covid-19 ^-^
+04/mar/2021 - I got diagnosed negative for Covid-19 ^-^
 
 ---
 
-5/mar/2021 - The government made the lockdown even more rigorous in this last phase
+05/mar/2021 - The government made the lockdown even more rigorous in this last phase
   of the virus, also my grandma got vaccinated yesterday, finally she can stop
   worrying about it :slightly_smiling_face:
   
@@ -52,3 +52,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 29/mar/2021 - I started learning lua because my friend would reach me to make a roblox game, it's a interesting language, although even the creator says there are better languages hahah.
+
+---
+
+02/apr/2021 - Finally i feel safe riding the car with my friend. He took his license and is practicing really hard, before i just felt like we could pass away any moment 🤣 .
