@@ -56,3 +56,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 02/apr/2021 - Finally i feel safe riding the car with my friend. He took his license and is practicing really hard, before i just felt like we could pass away any moment 🤣 .
+
+---
+
+12/apr/2021 - I thought my PC couldn't run The Witcher 3 but i think I was wrong lol, 've been playing for hours straight and already have 12 hours in one day '-'.
