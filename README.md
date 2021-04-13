@@ -60,3 +60,11 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ---
 
 12/apr/2021 - I thought my PC couldn't run The Witcher 3 but i think I was wrong lol, 've been playing for hours straight and already have 12 hours in one day '-'.
+
+---
+
+13/apr/2021 - uhhh...
+
+![witcher](https://user-images.githubusercontent.com/79072876/115949133-23ae8400-a4a9-11eb-9392-bea835934d6f.png)
+
+well, at least i'm not playing LoL.
