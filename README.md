@@ -68,3 +68,7 @@ Yea, I didn't know what to put here on the beginning so I think this is just a d
 ![witcher](https://user-images.githubusercontent.com/79072876/115949133-23ae8400-a4a9-11eb-9392-bea835934d6f.png)
 
 well, at least i'm not playing LoL.
+
+---
+
+14/apr/2021 - Bruh, I ordered a pair of coils some days ago and the guy from the coil store said they couldn't make it 'cos they had other more important things to do. Just wtf? IT IS A COIL STORE, what else could they be busy with?
