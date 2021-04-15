@@ -72,3 +72,9 @@ well, at least i'm not playing LoL.
 ---
 
 14/apr/2021 - Bruh, I ordered a pair of coils some days ago and the guy from the coil store said they couldn't make it 'cos they had other more important things to do. Just wtf? IT IS A COIL STORE, what else could they be busy with?
+
+Also it's my best friend's birthday ^-^ HAPPY 19yo o/
+
+---
+
+15/apr/2021 - I went on a date today 😄, It was with my high school friend and we went to a couple of stores, including a perfumery, and then we talked in a park for the rest of the day. She recommended me a scheduler app to help take care of my hair, it is nice, it even has a wiki included with everything you need to know with every detail, I love it!
