@@ -78,3 +78,7 @@ Also it's my best friend's birthday ^-^ HAPPY 19yo o/
 ---
 
 15/apr/2021 - I went on a date today 😄, It was with my high school friend and we went to a couple of stores, including a perfumery, and then we talked in a park for the rest of the day. She recommended me a scheduler app to help take care of my hair, it is nice, it even has a wiki included with everything you need to know with every detail, I love it!
+
+---
+
+16/apr/2021 - Lol, my cousing came into my house yesterday and we remembered he had something to return to me... today he posted a picture of himself near the Supreme Federal Court in Brasilia, I live in São Paulo, 18 hours from there lmao.
