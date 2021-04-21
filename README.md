@@ -82,3 +82,7 @@ Also it's my best friend's birthday ^-^ HAPPY 19yo o/
 ---
 
 16/apr/2021 - Lol, my cousing came into my house yesterday and we remembered he had something to return to me... today he posted a picture of himself near the Supreme Federal Court in Brasilia, I live in São Paulo, 18 hours from there lmao.
+
+---
+
+21/apr/2021 - I started making a website with my sister for our Discord bot project, it's going pretty well for now, except none of us are good at web-designing. No, we don't want to use wix or wordpress, maybe just a little of bootstrap, can't reveal much of it just yet (sry).
