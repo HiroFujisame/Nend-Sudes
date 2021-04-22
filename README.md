@@ -86,3 +86,7 @@ Also it's my best friend's birthday ^-^ HAPPY 19yo o/
 ---
 
 21/apr/2021 - I started making a website with my sister for our Discord bot project, it's going pretty well for now, except none of us are good at web-designing. No, we don't want to use wix or wordpress, maybe just a little of bootstrap, can't reveal much of it just yet (sry).
+
+---
+
+22/apr/2021 - I started to read a book I had for years called "Gravitation Red" (I also have the Blue one) and... Idk exactly what to say about it, it's just so heart touching besides all it's "tsundere" thingys. Anyways, I'm almost in the half now and it's just so good I can't stop reading. I think I was missing this feeling from No Game No Life while it lasted, it's still my favorite story thought.
