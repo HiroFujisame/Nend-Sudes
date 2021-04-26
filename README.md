@@ -90,3 +90,9 @@ Also it's my best friend's birthday ^-^ HAPPY 19yo o/
 ---
 
 22/apr/2021 - I started to read a book I had for years called "Gravitation Red" (I also have the Blue one) and... Idk exactly what to say about it, it's just so heart touching besides all it's "tsundere" thingys. Anyways, I'm almost in the half now and it's just so good I can't stop reading. I think I was missing this feeling from No Game No Life while it lasted, it's still my favorite story thought.
+
+---
+
+26/apr/2021 - So yesterday I got drunk while playing Overwatch with my best friend and i got MVP, lool our team was so noob we carried'em while drunk.
+
+also i'm downloading Devil May Cry 1, 2 and 3. i never played but always heard so good about it i decided to give it a try.
