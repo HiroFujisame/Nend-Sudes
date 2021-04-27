@@ -96,3 +96,11 @@ Also it's my best friend's birthday ^-^ HAPPY 19yo o/
 26/apr/2021 - So yesterday I got drunk while playing Overwatch with my best friend and i got MVP, lool our team was so noob we carried'em while drunk.
 
 also i'm downloading Devil May Cry 1, 2 and 3. i never played but always heard so good about it i decided to give it a try.
+
+---
+
+27/apr/2021 - WOW, ok so, DMC has the best lore of all the stories from games i paid attention to, i could spend hours writing about it but i'll spare you from it.
+
+
+this night my friends asked me if i was ok because i was playing dmc the whole day, i finished dmc1 yesterday around 11pm and was playing dmc2 and 3 since 2am, i finished them all and was playing with vergil when i noticed i was playing dmc3 for 14 hours straight lol, i'm starting to think i'm not ok at all.
+Anyways, i'm downloading dmc4, i wont be able to play the 5 because my pc can't run it tho. :/
