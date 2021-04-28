@@ -104,3 +104,8 @@ also i'm downloading Devil May Cry 1, 2 and 3. i never played but always heard s
 
 this night my friends asked me if i was ok because i was playing dmc the whole day, i finished dmc1 yesterday around 11pm and was playing dmc2 and 3 since 2am, i finished them all and was playing with vergil when i noticed i was playing dmc3 for 14 hours straight lol, i'm starting to think i'm not ok at all.
 Anyways, i'm downloading dmc4, i wont be able to play the 5 because my pc can't run it tho. :/
+
+---
+
+28/apr/2021 - I fucking love my friends, they started sharing DMC memes because they knew i'm into it, so lovely.
+Also i'm trying to take a break from gaming so i started learning how to use the windows powershell, it's preatty neat tho, i can do lots of stuff from way too many ways... i think i can exploit that.
