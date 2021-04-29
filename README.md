@@ -109,3 +109,7 @@ Anyways, i'm downloading dmc4, i wont be able to play the 5 because my pc can't 
 
 28/apr/2021 - I fucking love my friends, they started sharing DMC memes because they knew i'm into it, so lovely.
 Also i'm trying to take a break from gaming so i started learning how to use the windows powershell, it's preatty neat tho, i can do lots of stuff from way too many ways... i think i can exploit that.
+
+---
+
+29/apr/2021 - I think my sleep schedule is getting ucked cos i don't sleep at night to keep playing dmc, wich is kinda acceptable since i don't have a formal work or anything like that lol.
