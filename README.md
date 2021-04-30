@@ -113,3 +113,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 29/apr/2021 - I think my sleep schedule is getting ucked cos i don't sleep at night to keep playing dmc, wich is kinda acceptable since i don't have a formal work or anything like that lol.
+
+---
+
+30/apr/2021 - Yea, so that guys i wrote about who was dating my mom showed to be a jerk and they broke up. it's been more than a month since they were together and i was still watching for any slip, i won't let my mom date no dipshit cunt bastard.
