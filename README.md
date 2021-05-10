@@ -117,3 +117,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 30/apr/2021 - Yea, so that guys i wrote about who was dating my mom showed to be a jerk and they broke up. it's been more than a month since they were together and i was still watching for any slip, i won't let my mom date no dipshit cunt bastard.
+
+---
+
+10/may/2021 - I noticed my youtube recommendations are way too monotone, it only shows me dmc content and metal gear rising soundtracks. while searching for memes, though, i found this channel named brian david guilbert and it's pretty funny, would recommend a try.
