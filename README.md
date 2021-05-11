@@ -121,3 +121,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 10/may/2021 - I noticed my youtube recommendations are way too monotone, it only shows me dmc content and metal gear rising soundtracks. while searching for memes, though, i found this channel named brian david guilbert and it's pretty funny, would recommend a try.
+
+---
+
+11/may/2021 - nothing really happened today ¯\_("/)_/¯ just the normal routine, sorry to disapoint.
