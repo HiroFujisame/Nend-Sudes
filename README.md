@@ -125,3 +125,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 11/may/2021 - nothing really happened today ¯\_("/)_/¯ just the normal routine, sorry to disapoint.
+
+---
+
+12/may/2021 - I bought don't starve together on steam a couple days ago and had't played yet, so i invited some friends to play along with and the adventured together the whole day, it was fun. :thumbsup:
