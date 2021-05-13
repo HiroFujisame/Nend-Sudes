@@ -129,3 +129,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 12/may/2021 - I bought don't starve together on steam a couple days ago and had't played yet, so i invited some friends to play along with and the adventured together the whole day, it was fun. :thumbsup:
+
+---
+
+13/may/2021 - I hop into a call with my best friend and some of her friends from canada joined in, we befriended and tried to prank other guy who wasnt in the call by pretending to know personal stuff about him, as if he got hacked lol.
