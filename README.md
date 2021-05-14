@@ -133,3 +133,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 13/may/2021 - I hop into a call with my best friend and some of her friends from canada joined in, we befriended and tried to prank other guy who wasnt in the call by pretending to know personal stuff about him, as if he got hacked lol.
+
+---
+
+14/may/2021 - I think today is the coolest day of the year, not because it was fun but because it's really cold, almost 0ºC, and if you're from the south or from a normally cold place, shut, i don't want to know that you use t-shirt at -5C.
