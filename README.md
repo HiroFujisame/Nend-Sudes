@@ -137,3 +137,8 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 ---
 
 14/may/2021 - I think today is the coolest day of the year, not because it was fun but because it's really cold, almost 0ºC, and if you're from the south or from a normally cold place, shut, i don't want to know that you use t-shirt at -5C.
+
+---
+
+17/may/2021 - So, i installed linux cos i was wanting to migrate to it a long time ago, but then i think it corrupted the windows files with the constant multi-boot usage and it won't boot windows now.
+I tried with both original microsoft cd for win7 and 8 but they just won't boot and idk why, then it corrupted my ubuntu and i was left with just my cellphone, but i could burn a linux bootloader in my pendrive with it and installed linux again after formatting everything. I still can't install windows tho lol.
