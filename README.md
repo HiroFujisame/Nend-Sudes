@@ -142,3 +142,7 @@ Also i'm trying to take a break from gaming so i started learning how to use the
 
 17/may/2021 - So, i installed linux cos i was wanting to migrate to it a long time ago, but then i think it corrupted the windows files with the constant multi-boot usage and it won't boot windows now.
 I tried with both original microsoft cd for win7 and 8 but they just won't boot and idk why, then it corrupted my ubuntu and i was left with just my cellphone, but i could burn a linux bootloader in my pendrive with it and installed linux again after formatting everything. I still can't install windows tho lol.
+
+---
+
+21/may/2021 - I stopped trying. windows? yuck, i'll stay with my linux until i get to buy my new pc on my birthday in july.
