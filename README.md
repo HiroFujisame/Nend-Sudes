@@ -146,3 +146,7 @@ I tried with both original microsoft cd for win7 and 8 but they just won't boot 
 ---
 
 21/may/2021 - I stopped trying. windows? yuck, i'll stay with my linux until i get to buy my new pc on my birthday in july.
+
+---
+
+25/may/2021 - I'm still trying to get used to linux, tho it's pretty different from windows but i learned already how to use the gnome console properly and the partition and directories system.
