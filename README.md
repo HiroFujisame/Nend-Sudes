@@ -150,3 +150,7 @@ I tried with both original microsoft cd for win7 and 8 but they just won't boot 
 ---
 
 25/may/2021 - I'm still trying to get used to linux, tho it's pretty different from windows but i learned already how to use the gnome console properly and the partition and directories system.
+
+---
+
+26/may/2021 - I went to the mall today and bought myself some clothes along with a pair of boots, i had only one shoe for the last four years so it was pretty nice to have something new to wear.
