@@ -154,3 +154,7 @@ I tried with both original microsoft cd for win7 and 8 but they just won't boot 
 ---
 
 26/may/2021 - I went to the mall today and bought myself some clothes along with a pair of boots, i had only one shoe for the last four years so it was pretty nice to have something new to wear.
+
+---
+
+27/may/2021 - It's pretty boring to not have something to play or distract, so in recommendation of my friends i downloaded Girls Frontline for my phone. It isn't anything great but it's good to pass the time.
